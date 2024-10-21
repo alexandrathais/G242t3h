@@ -1,1 +1,2 @@
-# G242t3h
+# Aluno:
+## Alexandra Thais G. Valenzuela
